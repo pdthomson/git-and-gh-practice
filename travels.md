@@ -1,0 +1,1 @@
+I spent 4 months living in a van travel the united states went to almost every national park and fell in love with San Francisco, my favorite national park was Yosemite.I started at the very bottom of California and drove the entire Coastal Highway to just under Canada it was pretty rad
