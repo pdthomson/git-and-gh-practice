@@ -1,0 +1,1 @@
+I think that a career in software could be life changing in every way I could imagine. I have a drive and passion to grow the world and I think this is a way to do that. One small step for git, one giant leap to github.
